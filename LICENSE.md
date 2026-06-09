@@ -1,4 +1,4 @@
-# 
+# Nativo Inkscape preajustes para Mac OS | Gratuito Inkscape preajustes para PC Windows. Con kit de marca y motor de renderizado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
